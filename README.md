@@ -1,1 +1,0 @@
-# NNYrose.github.io
